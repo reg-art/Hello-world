@@ -1,3 +1,2 @@
 # Hello-world
 The mind is our greatest tool
-learning when the body has limiations, the mind continues to push bountarie.......
